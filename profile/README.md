@@ -1,4 +1,4 @@
-# Fire Kirin Online Casino: Sign Up Bonuses & Free Credits | 2025
+# Fire Kirin Online Casino: Sign Up Bonuses and Free Credits | 2025
 
 Fire Kirin is one of the most unique sweepstakes platforms where you can play various fish games and a select few other eye-popping slots. This guide will show you how to get free credits, explore engaging casino games and generous bonuses, and enjoy what Fire Kirin Casino offers.
 
